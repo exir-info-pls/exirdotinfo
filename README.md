@@ -28,5 +28,5 @@ Thank you for your continued support! Together, we are shaping the future of cry
 Best regards,  
 The Exir.info Team
 
-#ExirInfo #CryptoRevolution #Blockchain #Tokenization #Cryptocurrency #ExirTokens #InnovativeTechnology #StayTuned #PLS
+#ExirInfo #CryptoRevolution #Blockchain #Tokenization #Cryptocurrency #ExirTokens #InnovativeTechnology #StayTuned #NFT #Metaverse #Ai #PLS
 
